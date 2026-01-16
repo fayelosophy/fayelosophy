@@ -4,7 +4,7 @@
 
   ***
 
-<p align="center">(https://fayelosophy.carrd.co/)
+<p align="center">(https://fayelosophy.carrd.co/) (https://fayelosophy.atabook.org/)
 
 **<p align="center">henry creel glazer & anaylzer... creelby fan #1**
 
