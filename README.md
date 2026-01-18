@@ -6,6 +6,8 @@
 
 <p align="center">(https://fayelosophy.carrd.co/) (https://fayelosophy.atabook.org/)
 
+<p align="center">(https://fayelosophy.straw.page/)
+
 **<p align="center">henry creel glazer & anaylzer... creelby fan #1**
 
 *<p align="center">c+h & int freely unless i'm w/ friends!*
